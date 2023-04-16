@@ -1,1 +1,0 @@
-# OpenSX1-HD
